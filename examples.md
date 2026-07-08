@@ -241,3 +241,6 @@ Generate this image with the neuroscience and conversion psychology principles i
 
 **Golden Rule: The CTA button is the ONLY saturated, brightly colored element in the entire frame.**
 ```
+
+
+# krihna raslila
